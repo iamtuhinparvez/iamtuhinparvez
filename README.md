@@ -1,5 +1,5 @@
 # 👨🏻‍💻 About Me:
-BCA' 25 / Ex Intern at Globsyn Crystal<br>Currently Final Year Student at Bengal College Of Engineering & Technology<br>Works in Microsoft Power Bi as Data Analyst 
+MCA' 27 / Ex Intern at MEA and Globsyn Finishing School<br>Currently Final Year Student at SISTER NIVEDITA UNIVERSITY<br>Works in Microsoft Power Bi as Data Analyst 
 
 
 ## 🌐 Socials:
